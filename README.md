@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Abhishek Srivastava
+# Hi 👋, I'm Abhishek Srivastava
 **A passionate Data Analyst || Software Developer**
 
 Email Me 👉 ✉️ **abhisheks4702@gmail.com** For Collaboration/Project or Anything Else. 😊😊
